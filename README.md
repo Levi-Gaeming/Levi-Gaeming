@@ -1,3 +1,3 @@
 - Howdy, I'm Levi
 - I'm currently interested in roblox game development, especially with the mario 64 engine
-- I've been working on my own roblox game for about a month (https://www.roblox.com/games/18937375470/Super-Burnio-Road)
+- I've been working on my own roblox game for a few months (https://www.roblox.com/games/18937375470/Super-Burnio-Road)
