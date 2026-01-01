@@ -1,2 +1,2 @@
-Hi, I'm Levi
-I'm currently interested in things like Linux for the Nintendo Switch
+- Hi, I'm Levi
+- currently I am interested in things like Linux for the Nintendo Switch
