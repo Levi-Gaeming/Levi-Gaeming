@@ -1,2 +1,1 @@
-- Hi, I'm Levi
-- currently I am interested in things like Linux for the Nintendo Switch
+- i jus be doin shit man
